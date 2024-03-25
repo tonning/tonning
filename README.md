@@ -1,4 +1,4 @@
-### 🦊 Hi, I'm Laura.  
+### Hi, I'm Laura.  
 Senior Director of Software Engineering at [3Z Brands](https://www.3zbrands.com/) ([Helix Sleep](https://helixsleep.com/), [Brooklyn Bedding](https://brooklynbedding.com/), [Birch](https://birchliving.com/), and more).
 
 <br>
